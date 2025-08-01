@@ -184,7 +184,7 @@ AI/ML Engineer • NLP Explorer • Game Narrative Fan
 > *"Building AI that understands and creates—one word at a time."*
 
 Let’s collaborate, connect, or chat about games and language!
-Feel free to reach out via [LinkedIn](#) or drop a ⭐️ if you enjoyed the repo.
+Feel free to reach out via Lekanolawale477@gmail.com (#) or drop a ⭐️ if you enjoyed the repo.
 
 ---
 
